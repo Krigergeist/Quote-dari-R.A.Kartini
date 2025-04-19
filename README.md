@@ -1,0 +1,1 @@
+# Quote-dari-R.A.Kartini
